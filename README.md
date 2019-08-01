@@ -6,6 +6,6 @@ Why if life 42
 
 Just do it is a phrase on the internet
 
-Angry with Jessy and James is bond to be trouble
+Angry apples in a tree
 
-NEEED the change now type type type 
+NEED for typeracer
